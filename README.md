@@ -13,4 +13,4 @@ https://www.patreon.com/LacedRibbon?fan_landing=true&view_as=public
 
 . . .︶꒦꒷♡꒷꒦︶ . . .︶꒦꒷♡꒷꒦︶ . . . ︶꒦꒷♡꒷꒦︶ . . .
 
-![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/5b4c2261-acc3-4916-bdcf-b1f428779872)
+![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/9b9539c7-27ed-4bbb-b810-7a6dd2585bb6)
