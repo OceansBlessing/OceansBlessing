@@ -1,5 +1,4 @@
-![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/d057a971-46d1-437b-aade-2ff0e39a4bc8)
-![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/9e6b3c1d-a029-40c2-b465-2d2b54b9caec)
+![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/4dbdec33-319f-4517-8cab-64d40b85f5b2)
 
 . . .︶꒦꒷♡꒷꒦︶ . . .︶꒦꒷♡꒷꒦︶ . . . ︶꒦꒷♡꒷꒦︶ . . .
 
