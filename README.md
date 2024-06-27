@@ -1,11 +1,11 @@
-  ![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/9c0a45dc-ddef-4078-82bd-65182f0a627a)
-
 ![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/9b9539c7-27ed-4bbb-b810-7a6dd2585bb6)
 
 . . .︶꒦꒷♡꒷꒦︶ . . .︶꒦꒷♡꒷꒦︶ . . . ︶꒦꒷♡꒷꒦︶ . . .
 
      ‧₊˚.    𝗧𝗵𝗲 𝗕𝗹𝗼𝗼𝗺𝗶𝗻𝗴 𝗙𝗹𝗼𝘄𝗲𝗿      ‧₊˚.  
       𝗔𝗸𝗶𝗿𝗮 ,, 𝗦𝗵𝗲/𝗵𝗲𝗿/𝗵𝗲𝗿𝘀 ,, 𝟳𝘁𝗲𝗲𝗻 
+      
+![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/83cbbd76-e703-448f-a275-1ee6ef8f629e)
 
 . . .︶꒦꒷♡꒷꒦︶ . . .︶꒦꒷♡꒷꒦︶ . . . ︶꒦꒷♡꒷꒦︶ . . .
 
