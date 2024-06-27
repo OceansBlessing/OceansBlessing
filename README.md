@@ -21,3 +21,4 @@
 ![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/48c170d1-55d7-4e64-a479-9ff09d4a42e3)
 ![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/9a1dfbf2-c11e-4b7b-8c10-cc59aa07337b)
 
+꒰ 𝗧𝗵𝗲 𝗱𝗶𝘃𝗶𝗱𝗲𝗿𝘀 𝘂𝘀𝗲𝗱 𝗮𝗿𝗲 𝗻𝗼𝘁 𝗺𝗶𝗻𝗲 𝗯𝘂𝘁 𝗶𝘀 𝗳𝗿𝗼𝗺— https://rentry.co/decodividers . . . ꒱
