@@ -20,7 +20,7 @@
 
   . ۫ ꣑ৎ   .  𝗙𝗼𝗿 𝗳𝘂𝗿𝘁𝗵𝗲𝗿 𝗶𝗻𝗳𝗼𝗿𝗺𝗮𝘁𝗶𝗼𝗻, 𝗽𝗹𝗲𝗮𝘀𝗲 𝗰𝗵𝗲𝗰𝗸 𝗼𝘂𝘁 𝗺𝘆 𝗽𝗮𝘁𝗿𝗲𝗼𝗻! :𝟯 
 
-୨୧. ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯ .୨୧ https://www.patreon.com/LacedRibbon?fan_landing=true&view_as=public
+୨୧. ⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯  .୨୧ https://www.patreon.com/LacedRibbon?fan_landing=true&view_as=public
 
 ![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/48c170d1-55d7-4e64-a479-9ff09d4a42e3)
 ![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/9a1dfbf2-c11e-4b7b-8c10-cc59aa07337b)
