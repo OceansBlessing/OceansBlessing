@@ -12,3 +12,9 @@
   . ۫ ꣑ৎ   .  𝗕𝗬𝗜— I may not talk alot when I don't know you or if your not in my friend list and party! Im really sorry if I can't start conversations, I really don't know what to say sometimes. 
 
  ![Tumblr-l-153655948800184](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/e5e7e4f0-4c4a-4fdf-822d-e53c742314a0)
+
+
+  . ۫ ꣑ৎ   .  𝗙𝗼𝗿 𝗳𝘂𝗿𝘁𝗵𝗲𝗿 𝗶𝗻𝗳𝗼𝗿𝗺𝗮𝘁𝗶𝗼𝗻, 𝗽𝗹𝗲𝗮𝘀𝗲 𝗰𝗵𝗲𝗰𝗸 𝗼𝘂𝘁 𝗺𝘆 𝗽𝗮𝘁𝗿𝗲𝗼𝗻! :𝟯 
+
+୨୧. https://www.patreon.com/LacedRibbon?fan_landing=true&view_as=public
+
