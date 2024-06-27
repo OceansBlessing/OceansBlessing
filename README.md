@@ -10,6 +10,7 @@
 
 
   . ۫ ꣑ৎ   .   𝗕𝗬𝗜
+
 I may not talk alot when I don't know you or if your not in my friend list and party! Im really sorry if I can't start conversations, I really don't know what to say sometimes. 
 
  
