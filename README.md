@@ -3,5 +3,5 @@
 
   ꒰ 𝗔𝗸𝗶𝗿𝗮 ,, 𝗦𝗵𝗲/𝗵𝗲𝗿/𝗵𝗲𝗿𝘀 ,, 𝟳𝘁𝗲𝗲𝗻♡ ꒱
 
- . ۫ ꣑ৎ   .  Whisp me if you have a message! I am mostly afk or offtab . . . I always accept c+h and I love making new friends, so don't hesitate to approach me if you see me in the game!
+ . ۫ ꣑ৎ   .  Whisp me if you have a message! I am mostly afk or offtab . . . I always accept c+h and I love making new friends, so don't hesitate to approach me if you see me in the game! >O<
 
