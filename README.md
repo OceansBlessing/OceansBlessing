@@ -4,7 +4,8 @@
 
  ‧₊˚.    𝗧𝗵𝗲 𝗕𝗹𝗼𝗼𝗺𝗶𝗻𝗴 𝗙𝗹𝗼𝘄𝗲𝗿      ‧₊˚.  
   𝗔𝗸𝗶𝗿𝗮 ,, 𝗦𝗵𝗲/𝗵𝗲𝗿/𝗵𝗲𝗿𝘀 ,, 𝟳𝘁𝗲𝗲𝗻 ![5087f690](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/d592bc7a-99b5-48ca-970a-bffd0ac51a4b)
-![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/46c63019-bc8a-4ac2-8c22-569ed998ea40)
+
+![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/c49aee58-eac3-4515-aa0c-98f91c3c7197)
 
 
 . . .︶꒦꒷♡꒷꒦︶ . . .︶꒦꒷♡꒷꒦︶ . . . ︶꒦꒷♡꒷꒦︶ . . .
