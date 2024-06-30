@@ -21,5 +21,3 @@
 
 ![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/e4b66069-17ce-4529-87ff-f4da0648ec91) 
 ![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/bce8dae3-b05e-4c6a-a6d0-e409cb87d500)
-
-︶︶︶︶𝗖𝗿𝗲𝗱𝗶𝘁𝘀 𝘁𝗼 𝗟𝗲𝗼'𝘀 𝗴𝗿𝗮𝗽𝗵𝗶𝗰𝘀 𝗳𝗼𝗿 𝘁𝗵𝗲 𝗱𝗶𝘃𝗶𝗱𝗲𝗿𝘀 𝘂𝘀𝗲𝗱.
