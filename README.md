@@ -20,4 +20,8 @@
  ![8277bbd9](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/b884a867-cf8f-4188-a614-8cff8a90f900)
 
 ![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/e4b66069-17ce-4529-87ff-f4da0648ec91) 
-![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/bce8dae3-b05e-4c6a-a6d0-e409cb87d500)
+![image](https://github.cohttps://OceansBlessing/OceansBlessing/assets/173688831/bce8dae3-b05e-4c6a-a6d0-e409cb87d500)
+
+
+︶︶︶𝗖𝗿𝗲𝗱𝗶𝘁𝘀 𝘁𝗼 [ghwosting](https://www.tumblr.com/ghwosting/753416654099283968/any-pink-pixel-dividers?source=share) ,, 
+—𝗖𝗮𝗻'𝘁 𝗳𝗶𝗻𝗱 𝘁𝗵𝗲 𝗮𝗹𝗹 𝘁𝗵𝗲 𝗽𝗲𝗼𝗽𝗹𝗲, 𝗯𝘂𝘁 𝘁𝗵𝗲 𝘀𝗼𝘂𝗿𝗰𝗲 𝗶𝘀 𝗳𝗿𝗼𝗺 [𝗖𝗹𝗶𝗰𝗸 𝗺𝗲!]
