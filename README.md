@@ -10,5 +10,3 @@
    ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .         
    ![16](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/9ff22f66-e518-4e92-9d62-d9f7e91749b2)
 
-
-![download (15)](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/20517696-8600-4b9f-9b5b-470b8e12914f)
