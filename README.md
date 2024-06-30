@@ -15,7 +15,7 @@
   ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .    
  ![16](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/9ff22f66-e518-4e92-9d62-d9f7e91749b2)
  
-౨ৎ. 𝗙𝗼𝗿 𝗳𝘂𝗿𝘁𝗵𝗲𝗿 𝗶𝗻𝗳𝗼𝗿𝗺𝗮𝘁𝗶𝗼𝗻, 𝗰𝗵𝗲𝗰𝗸 𝗺𝘆 . . . [𝗣𝗮𝘁𝗿𝗲𝗼𝗻]( https://www.patreon.com/LacedRibbon?fan_landing=true&view_as=public) !
+౨ৎ. 𝗙𝗼𝗿 𝗳𝘂𝗿𝘁𝗵𝗲𝗿 𝗶𝗻𝗳𝗼𝗿𝗺𝗮𝘁𝗶𝗼𝗻, 𝗰𝗵𝗲𝗰𝗸 𝗺𝘆 . . . [𝗣𝗮𝘁𝗿𝗲𝗼𝗻]( https://www.patreon.com/LacedRibbon?fan_landing=true&view_as=public) !      
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .
  ![8277bbd9](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/b884a867-cf8f-4188-a614-8cff8a90f900)
 
