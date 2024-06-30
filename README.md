@@ -18,3 +18,7 @@
 ౨ৎ. 𝗙𝗼𝗿 𝗳𝘂𝗿𝘁𝗵𝗲𝗿 𝗶𝗻𝗳𝗼𝗿𝗺𝗮𝘁𝗶𝗼𝗻, 𝗰𝗵𝗲𝗰𝗸 𝗺𝘆 . . . [𝗣𝗮𝘁𝗿𝗲𝗼𝗻]( https://www.patreon.com/LacedRibbon?fan_landing=true&view_as=public) !
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ .
  ![8277bbd9](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/b884a867-cf8f-4188-a614-8cff8a90f900)
+
+![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/e4b66069-17ce-4529-87ff-f4da0648ec91) 
+![image](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/bce8dae3-b05e-4c6a-a6d0-e409cb87d500)
+
