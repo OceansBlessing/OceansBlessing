@@ -25,7 +25,7 @@
 
 ![tumblr_932cd42a4a5bfb1f1a99cc2fb11bde0f_dad4b185_250](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/b2f1d635-aea9-4ac2-be21-92bc8fc08fe0).   > 𝗢𝗵, 𝘆𝗼𝘂𝗿 𝗿𝗲𝗮𝗱𝗶𝗻𝗴 𝘁𝗵𝗶𝘀 𝗳𝗮𝗿 ? 𝗜𝗳 𝘆𝗼𝘂 𝘄𝗮𝗻𝘁 𝗳𝘂𝗿𝘁𝗵𝗲𝗿 𝗶𝗻𝗳𝗼𝗿𝗺𝗮𝘁𝗶𝗼𝗻 :: ✦ 𝗖𝗵𝗲𝗰𝗸 𝗺𝘆 [𝙋𝙖𝙩𝙧𝙚𝙤𝙣](https://www.patreon.com/LacedRibbon?fan_landing=true&view_as=public) !!
 
-✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦          
 ![tumblr_583f7c7a55f99ea4a3da98138f01beb5_8ee68a52_640](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/3e9b1690-a902-46b2-afa1-1e15e1fb6d8e)
 ![tumblr_5850bc69ed8fa98c7d3b8b92baef74cf_1a64672d_640](https://github.com/OceansBlessing/OceansBlessing/assets/173688831/a7ef4aff-19af-4597-9085-051079e1ae19)
 
