@@ -1,5 +1,6 @@
-![tumblr_63c98a02ae6130ce309f1e53a71cc782_16746eb2_640](https://github.com/user-attachments/assets/f720b13e-71ea-43ad-b930-0b96a2be1576)
-![tumblr_e551fd127d69aeb487e22cca61a033ef_7d1e033d_640](https://github.com/user-attachments/assets/b555cfac-469a-4415-9848-64d245e34bb7)
+
+![tumblr_e551fd127d69aeb487e22cca61a033ef_7d1e033d_640](https://github.com/user-attachments/assets/b555cfac-469a-4415-9848-64d245e34bb7) ![tumblr_6b4e7babe7fa7381a4cc87e1fc9f18de_978dddc6_250](https://github.com/user-attachments/assets/bb10c3fc-b59b-485f-8497-0ac3ffa45940)
+
 
    " 𝗔 𝗽𝗿𝗼𝗽𝗲𝗿 𝘀𝗲𝗻𝗱 𝗼𝗳𝗳! "
    
