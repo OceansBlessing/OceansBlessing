@@ -6,6 +6,8 @@
 
 .ৎ 𝗔𝗸𝗶𝗿𝗮 • 𝗣𝗲𝗮𝗿𝗹𝗮 :: C+H friendly . . . ♡ Whisp to give a message + If I don't respond feel free to leave me a message in my Retrospring 
 
+![tumblr_bbf7877ecbcf89390237c0d631faff10_4282bd30_640](https://github.com/user-attachments/assets/10d8d5fc-48da-430e-9067-fbc6c69c295b)
+
 
 
 
