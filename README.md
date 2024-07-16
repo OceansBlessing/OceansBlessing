@@ -2,8 +2,7 @@
 
 " 𝗪𝗵𝗲𝗻 𝘁𝗵𝗲 𝗴𝗼𝗹𝗱 𝗿𝗮𝘆𝘀 𝗳𝗲𝗹𝗹 𝗼𝗻 𝘆𝗼𝘂𝗿 𝘀𝗸𝗶𝗻 . . . 𝗔𝗻𝗱 𝗺𝘆 𝗵𝗮𝗶𝗿 𝗴𝗼𝘁 𝗰𝗮𝘂𝗴𝗵𝘁 𝗶𝗻 𝘁𝗵𝗲 𝘄𝗶𝗻𝗱. "
 
-![tumblr_2eaa97a3827ff560a430dee065c90314_5d026036_400](https://github.com/user-attachments/assets/0c6de47c-06e8-435a-b925-a6f4493c46c8)
-
+![tumblr_d1aa17c638eed93bef7087135e2fe56b_846359ed_400](https://github.com/user-attachments/assets/9e0e140f-fc78-4a7f-ac56-e2c32c451da7)
 
 .ৎ 𝗔𝗸𝗶𝗿𝗮 • 𝗣𝗲𝗮𝗿𝗹𝗮 :: C+H friendly . . . ♡ Whisp to give a message + If I don't respond feel free to leave me a message in my Retrospring 
 
