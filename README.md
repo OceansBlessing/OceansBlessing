@@ -5,7 +5,7 @@
 ![tumblr_2eaa97a3827ff560a430dee065c90314_5d026036_400](https://github.com/user-attachments/assets/0c6de47c-06e8-435a-b925-a6f4493c46c8)
 
 
-.ৎ 𝗔𝗸𝗶𝗿𝗮 • 𝗣𝗲𝗮𝗿𝗹𝗮 :: 7𝙩𝙚𝙚𝙣 ,, 𝙨𝙝𝙚/𝙝𝙚𝙧/𝙝𝙚𝙧𝙨 ,,
+.ৎ 𝗔𝗸𝗶𝗿𝗮 • 𝗣𝗲𝗮𝗿𝗹𝗮 :: C+H friendly . . . ♡ Whisp to give a message + If I don't respond feel free to leave me a message in my Retrospring 
 
 
 
